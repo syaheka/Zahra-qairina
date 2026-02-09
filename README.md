@@ -71,7 +71,7 @@ Bagi banyak orang, **kasus Zara Qairina di Malaysia** menjadi simbol kegagalan s
 Untuk memahami konteks dan kronologi **kasus Zara Qairina** secara visual, kamu dapat mengunduh video terkait melalui tautan berikut:
 
 👉 **Download video kasus Zara Qairina:**  
-https://bit.ly/4cgSyfC
+https://bit.ly/3MeblxG
 
 ---
 
@@ -163,7 +163,7 @@ Bagi banyak orang, **kasus Zara Qairina di Malaysia** menjadi simbol kegagalan s
 Untuk memahami konteks dan kronologi **kasus Zara Qairina** secara visual, kamu dapat mengunduh video terkait melalui tautan berikut:
 
 👉 **Download video kasus Zara Qairina:**  
-https://bit.ly/4cgSyfC
+https://bit.ly/3MeblxG
 
 ---
 
